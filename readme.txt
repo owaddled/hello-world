@@ -1,1 +1,1 @@
-FLUCKOFFRld thiS is THE rZllefrazeeleeadme.txt
+FLUCKO   iFRld thiS is THE rZllefrazeeleeadme.txt
